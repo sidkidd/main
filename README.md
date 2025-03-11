@@ -1,3 +1,3 @@
 # main
 
-Author- Sid Kid
+Author- (Sid Kid)
